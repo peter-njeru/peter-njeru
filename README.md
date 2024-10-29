@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @peter-njeru
+- 👀 I’m interested in A.I. and General Software Development
+- 📫 How to reach me:
+  - Mobile: +254-705-740 384
+  - Email: peternjeru@microsoft.com
+- 😄 Pronouns: he/him
